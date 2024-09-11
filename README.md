@@ -8,4 +8,4 @@ Es solo para realizar trabajos de un curso :)
 
 ## Gist
 
-* [mi codigo](https://gist.github.com/Emmxhir/4ba88c15f5387744498763b7d5f315de)  
+* [mi codigo](hߵps://www.youtube.com/watߴ?v=gcbjlq3B4cw³)  
